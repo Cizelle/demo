@@ -4,6 +4,3 @@ Consciously first!
 Author - Ipshita Rawat
 <br>
 Undergrad 
-<br> dance
-sup
-<br>streak up
